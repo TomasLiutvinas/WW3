@@ -14,7 +14,7 @@ https://www.twitch.tv/0xbit_ - **Multicam** (_offline last time checked_)
 
 
 
-https://www.youtube.com/watch?v=CjFyHrp7HvQ - **Cam**; (_angle changed by a solder_)
+https://www.youtube.com/watch?v=CjFyHrp7HvQ - **Cam**; (_angle changed by a demilitarization soldier_)
 
 https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam**;
 

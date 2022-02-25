@@ -8,7 +8,7 @@ Refresh a lot if something doesn't load.
 # Streams
 
 
-https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maiden Square**, (_Also hosted Ru Foreign Affairs Press Conference, rewind to find_)
+https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maiden Square**, (_Also shows relevant conferences sometimes_)
 
 https://www.twitch.tv/nemicotv - **Multicam**
 

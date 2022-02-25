@@ -1,6 +1,8 @@
 # WW3
 **Resources**
 
+Details Vague intentionally.
+
 # Streams
 
 

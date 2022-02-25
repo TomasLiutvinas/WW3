@@ -2,6 +2,7 @@
 **Resources**
 
 Details Vague intentionally.
+Refresh a lot if something doesn't load.
 
 # Streams
 

@@ -6,7 +6,7 @@ Details Vague intentionally.
 # Streams
 
 
-https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maiden Square**, (_Also hosted Ru Foreign Affairs Press Conference_)
+https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maiden Square**, (_Also hosted Ru Foreign Affairs Press Conference, rewind to find_)
 
 https://www.twitch.tv/nemicotv - **Multicam**
 

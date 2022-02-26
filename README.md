@@ -41,3 +41,5 @@ http://oszku.eu/status - Ru web operation statuses
 https://old.reddit.com/r/worldnews/
 
 https://www.reddit.com/r/CombatFootage/new/
+
+https://www.reddit.com/r/russia

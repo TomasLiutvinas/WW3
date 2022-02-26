@@ -34,7 +34,7 @@ https://liveuamap.com/ - Map of events
 
 https://www.rsc.lt/radis/ - Radiation map
 
-http://oszku.eu/status - Anonymous web operation statuses
+http://oszku.eu/status - Ru web operation statuses
 
 # Subreddits
 

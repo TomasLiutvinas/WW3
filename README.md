@@ -11,6 +11,8 @@ https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maidan Square**, (_Also shows re
 
 https://www.youtube.com/watch?v=QAKIt3ZYj2c - **Multicam 2**
 
+https://youtu.be/iZebYm-nenY - **Multicam 3**
+
 https://www.youtube.com/watch?v=CjFyHrp7HvQ - **Cam**; (_angle changed by a demilitarization soldier_)
 
 https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam**;

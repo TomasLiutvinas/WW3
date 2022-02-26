@@ -22,8 +22,16 @@ https://www.youtube.com/watch?v=CjFyHrp7HvQ - **Cam**; (_angle changed by a demi
 
 https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam**;
 
+https://www.youtube.com/watch?v=T3pYbzFrnQU - Russia24 YouTube
+
 
 # Other
 https://liveuamap.com/ - Map of events
 
 https://www.rsc.lt/radis/ - Radiation map
+
+# Subreddits
+
+https://old.reddit.com/r/worldnews/
+
+https://www.reddit.com/r/CombatFootage/new/

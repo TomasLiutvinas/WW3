@@ -9,6 +9,8 @@ Refresh a lot if something doesn't load.
 
 https://youtu.be/2vBiebeMD6Y - **Kyiv**, FOX News Cam. 
 
+https://youtu.be/Wfsb3M-1x3c - **CNN** restream
+
 https://www.youtube.com/watch?v=ycFYyQcuL1w - **Kyiv Multicam**
 
 https://www.youtube.com/watch?v=-upyPouRrB8 - **Al Jazeera**

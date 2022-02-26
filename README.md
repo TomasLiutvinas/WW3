@@ -9,6 +9,8 @@ Refresh a lot if something doesn't load.
 
 https://youtu.be/2vBiebeMD6Y - **Kyiv**, FOX News Cam. 
 
+https://www.youtube.com/watch?v=-upyPouRrB8 - **Al Jazeera**
+
 https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maidan Square**, (_Also shows relevant conferences sometimes_)
 
 https://www.youtube.com/watch?v=QAKIt3ZYj2c - **Multicam 2**

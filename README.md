@@ -43,3 +43,5 @@ https://old.reddit.com/r/worldnews/
 https://www.reddit.com/r/CombatFootage/new/
 
 https://www.reddit.com/r/russia
+
+https://old.reddit.com/r/ukraine/

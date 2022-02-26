@@ -25,7 +25,7 @@ https://youtu.be/iZebYm-nenY - **Multicam 3**
 
 https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam**;
 
-https://www.youtube.com/watch?v=T3pYbzFrnQU - Russia24 YouTube
+https://www.youtube.com/watch?v=T3pYbzFrnQU - R24 YouTube
 
 https://www.twitch.tv/nemicotv - **Multicam** (_sadly Sems to be Banned on Twitch_)
 

@@ -7,11 +7,13 @@ Refresh a lot if something doesn't load.
 
 # Streams
 
-https://youtu.be/2vBiebeMD6Y - **Kyiv**, FOX News Cam. 
+https://youtu.be/2vBiebeMD6Y - **FOX News**
 
 https://youtu.be/Wfsb3M-1x3c - **CNN** restream
 
-https://www.youtube.com/watch?v=ycFYyQcuL1w - **Kyiv Multicam**
+https://www.youtube.com/watch?v=ycFYyQcuL1w - **Multicam**
+
+https://youtu.be/e2gC37ILQmk - 12 cam multicam
 
 https://www.youtube.com/watch?v=-upyPouRrB8 - **Al Jazeera**
 

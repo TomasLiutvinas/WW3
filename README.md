@@ -7,14 +7,13 @@ Refresh a lot if something doesn't load.
 
 # Streams
 
-
-https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maiden Square**, (_Also shows relevant conferences sometimes_)
-
-https://www.youtube.com/watch?v=QAKIt3ZYj2c - **Multicam 2**
-
 https://www.twitch.tv/0xbit_ - **Multicam** (_offline last time checked_)
 
 https://www.twitch.tv/nemicotv - **Multicam** (_sadly Sems to be Banned on Twitch_)
+
+https://www.youtube.com/watch?v=uJ6AzlYCysY - **Maidan Square**, (_Also shows relevant conferences sometimes_)
+
+https://www.youtube.com/watch?v=QAKIt3ZYj2c - **Multicam 2**
 
 https://www.youtube.com/watch?v=WwtHGxLeJ_E - possible nemico alternative, but not streaming atm
 

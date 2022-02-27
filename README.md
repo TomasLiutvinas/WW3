@@ -41,8 +41,6 @@ https://www.youtube.com/watch?v=aSOlbyB7aW4 - **Cam #4**
 
 # Youtube (check for streams)
 
-https://www.youtube.com/channel/UCJ2Iy1lsAU-u-KuXJ1yHOdA - **UA Youtube**
-
 https://www.youtube.com/channel/UCj0TppyxzQWm9JbMg3CP8Rg - **CGTN**
 
 https://www.youtube.com/channel/UC0dbzuSRwNiZXfWK05epKUQ - **Crazy random guy in capital**

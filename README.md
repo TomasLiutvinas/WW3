@@ -5,6 +5,8 @@ Details Vague intentionally.
 
 Refresh a lot if something doesn't load.
 
+Content is dynamic, I'm updating at irregulal intervals, things can change or go down.
+
 # Streams
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**
@@ -29,9 +31,13 @@ https://www.twitch.tv/abaftabeam **Multicam #4** twitch
 
 # Single Cams
 
-https://youtu.be/HBDRYws_7hU - *Hydr*
+https://youtu.be/HBDRYws_7hU - **Cam #1**
 
-https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam**
+https://www.youtube.com/watch?v=VpUaEvy_-iM - **Cam #2**
+
+https://www.youtube.com/watch?v=aSOlbyB7aW4 - **Cam #3**
+
+https://www.youtube.com/watch?v=aSOlbyB7aW4 - **Cam #4**
 
 # Youtube (check for streams)
 

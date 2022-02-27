@@ -49,6 +49,8 @@ https://www.youtube.com/channel/UC0dbzuSRwNiZXfWK05epKUQ - **Crazy random guy in
 
 https://www.youtube.com/channel/UC5O114-PQNYkurlTg6hekZw - **United Nations**
 
+https://www.youtube.com/watch?v=T3pYbzFrnQU - R24
+
 # Other
 
 https://liveuamap.com/ - Map of events
@@ -58,8 +60,6 @@ https://www.rsc.lt/radis/ - Radiation map
 http://oszku.eu/status - Ru web operation statuses
 
 https://twitter.com/ZelenskyyUa - UA Twitter
-
-https://www.youtube.com/watch?v=T3pYbzFrnQU - R24 YouTube
 
 # Subreddits
 

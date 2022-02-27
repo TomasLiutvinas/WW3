@@ -33,7 +33,9 @@ https://www.twitch.tv/nemicotv - **Multicam** (_sadly Sems to be Banned on Twitc
 
 https://www.youtube.com/watch?v=WwtHGxLeJ_E - possible nemico alternative, but not streaming atm
 
+# Check for livestreams
 
+https://www.youtube.com/channel/UCJ2Iy1lsAU-u-KuXJ1yHOdA - UA Youtube
 
 # Other
 https://liveuamap.com/ - Map of events

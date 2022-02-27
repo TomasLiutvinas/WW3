@@ -73,6 +73,8 @@ https://old.reddit.com/r/russia
 
 https://old.reddit.com/r/ukraine/
 
+https://old.reddit.com/r/UkraineWarReports/
+
 # Down
 
 https://www.twitch.tv/nemicotv - **Nemico multistream** (_sadly Sems to be Banned on Twitch_)

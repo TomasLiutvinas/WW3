@@ -7,6 +7,9 @@ Refresh a lot if something doesn't load.
 
 Content is dynamic, I'm updating at irregulal intervals, things can change or go down.
 
+**Goto is probably this:**
+https://liveuamap.com/ - Map of events
+
 # Next UN Security Council Meeting
 
 https://www.youtube.com/watch?v=2yAn-2SKur8

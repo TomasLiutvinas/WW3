@@ -60,6 +60,8 @@ https://www.youtube.com/watch?v=T3pYbzFrnQU - R24
 
 https://liveuamap.com/ - Map of events
 
+https://t.me/V_Zelenskiy_official - UA Telegram
+
 https://www.rsc.lt/radis/ - Radiation map
 
 http://oszku.eu/status - Ru web operation statuses

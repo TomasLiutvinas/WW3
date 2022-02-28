@@ -20,8 +20,6 @@ https://youtu.be/2vBiebeMD6Y - **FOX cam**
 
 https://www.youtube.com/watch?v=-upyPouRrB8 - **Al Jazeera**
 
-https://www.youtube.com/watch?v=INBO8WUPlrY - **UA YT**
-
 # Multicams
 
 https://standwithua.xyz/livecams/ **Multi Multicams**

@@ -26,6 +26,8 @@ https://www.rsc.lt/radis/ - Radiation map
 
 http://oszku.eu/status - Ru web operation statuses
 
+https://stoprus.com/ - Brands to cancel
+
 # Streams
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**

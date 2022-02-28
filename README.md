@@ -7,6 +7,10 @@ Refresh a lot if something doesn't load.
 
 Content is dynamic, I'm updating at irregulal intervals, things can change or go down.
 
+# Next UN Security Council Meeting
+
+https://www.youtube.com/watch?v=2yAn-2SKur8
+
 # Streams
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**

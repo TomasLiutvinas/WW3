@@ -79,7 +79,7 @@ https://old.reddit.com/r/ukraine/
 
 https://old.reddit.com/r/UkraineWarReports/
 
-# Discords (not sure if will work)
+# Discords (not sure if will work, might be full/expired)
 
 https://discord.gg/nemico
 

@@ -18,8 +18,6 @@ https://www.youtube.com/watch?v=2yAn-2SKur8
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**
 
-https://youtu.be/Wfsb3M-1x3c - **CNN** (restream, so could change content)
-
 https://www.youtube.com/watch?v=-upyPouRrB8 - **Al Jazeera**
 
 https://www.youtube.com/watch?v=INBO8WUPlrY - **UA YT**
@@ -93,3 +91,5 @@ https://discord.gg/3fR3B93E
 https://www.twitch.tv/nemicotv - **Nemico multistream** (_sadly Sems to be Banned on Twitch_)
 
 https://www.youtube.com/watch?v=WwtHGxLeJ_E - possible nemico alternative, but not streaming atm
+
+https://youtu.be/Wfsb3M-1x3c - **CNN** (restream)

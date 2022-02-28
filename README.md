@@ -90,6 +90,8 @@ https://old.reddit.com/r/russia
 
 https://old.reddit.com/r/ukraine/
 
+https://www.reddit.com/r/europe/
+
 https://old.reddit.com/r/UkraineWarReports/
 
 # Discords (not sure if will work, might be full/expired)

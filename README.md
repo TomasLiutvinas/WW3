@@ -28,6 +28,8 @@ http://oszku.eu/status - Ru web operation statuses
 
 https://stoprus.com/ - Brands to cancel
 
+https://nuclearadvice.org/
+
 # Streams
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**

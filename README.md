@@ -10,13 +10,9 @@ Content is dynamic, I'm updating at irregulal intervals, things can change or go
 **Goto is probably this:**
 https://liveuamap.com/ - Map of events
 
-# UN General Council Emergency Meeting
+# UN General Assembly Emergency Meeting
 
-https://youtu.be/P2MoQnBYCqU
-
-# Next UN Security Council Meeting
-
-https://www.youtube.com/watch?v=2yAn-2SKur8
+https://www.youtube.com/watch?v=N-MYekTKGkQ
 
 # Other
 

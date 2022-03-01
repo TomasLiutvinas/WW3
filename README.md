@@ -1,6 +1,10 @@
 # WW3
 **Resources**
 
+Why?
+
+https://youtu.be/If61baWF4GE
+
 Details Vague intentionally.
 
 Refresh a lot if something doesn't load.

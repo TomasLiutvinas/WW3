@@ -34,6 +34,8 @@ https://stoprus.com/ - Brands to cancel
 
 https://nuclearadvice.org/
 
+https://t.me/s/intelslava
+
 # Streams
 
 https://youtu.be/2vBiebeMD6Y - **FOX cam**
@@ -81,6 +83,8 @@ https://www.youtube.com/watch?v=T3pYbzFrnQU - R24
 # Twitter
 
 https://twitter.com/ZelenskyyUa - UA Twitter
+
+https://twitter.com/ASBMilitary
 
 # Subreddits
 

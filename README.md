@@ -14,8 +14,6 @@ https://liveuamap.com/ - Map of events
 
 https://t.me/V_Zelenskiy_official - UA Telegram
 
-http://oszku.eu/status - Ru web operation statuses
-
 https://stoprus.com/ - Brands to cancel
 
 https://nuclearadvice.org/
